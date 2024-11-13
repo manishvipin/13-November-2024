@@ -5,6 +5,8 @@
 
 
 2=> Infiltration का अर्थ है घुसपैठ। 
+![image](https://github.com/user-attachments/assets/4b29c62c-d182-482e-ba9b-317ceb823f94)
+
 ![image](https://github.com/user-attachments/assets/4827f0cb-fece-434d-86f5-77e53ef671cd)
 
 Connivance का अर्थ है मिलीभगत या धृष्ट सहमति। 
@@ -17,8 +19,6 @@ Incriminating का अर्थ है अपराध-सिद्ध कर�
 
 
 
-3=> 
+3=> name of first wooden statellite and a statellite which weight is just 900gm.
 ![image](https://github.com/user-attachments/assets/d5c3a01c-4db5-493b-9945-f27e82e7d81a)
-
-name of first wooden statellite and a statellite which weight is just 900gm.
 
